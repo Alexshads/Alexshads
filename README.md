@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="410" src="https://64.media.tumblr.com/15d5a244debd7a662358705ebcf33510/95f9bada810d15ed-22/s1280x1920/c214201364191e423c53ec5631aed0b8ada0e70a.pnj" alt="">
+    <img width="410" src="https://pa1.aminoapps.com/6783/02e1d0547d4104d758573fbcc838f9b4f362d6e2_00.gif" alt="">
 </p>
 
 <p align="center">
@@ -9,4 +9,4 @@
 : 𝐂𝚕𝚒𝚌𝚔𝚎𝚊 𝚖𝚒 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚙𝚊𝚛𝚊 𝚜𝚊𝚋𝚎𝚛 𝚞𝚗 𝚙𝚘𝚌𝚘 𝚖𝚊𝚜 𝚍𝚎 𝚖𝚒 !!<p>
 
 <p align="center">
-    <img width="150" src="https://64.media.tumblr.com/fb5e5be5f224f009a68ea1befb9d00cf/95f9bada810d15ed-02/s1280x1920/7bc02589f466b4ad20ba8ebeb7eaefab1b3cca6d.pnj" alt="">
+    <img width="80" src="https://media.tenor.com/ch3B9VPdvhgAAAAM/fnafhs-owynn.gif" alt="">
