@@ -9,4 +9,4 @@
 : 𝐂𝚕𝚒𝚌𝚔𝚎𝚊 𝚖𝚒 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚙𝚊𝚛𝚊 𝚜𝚊𝚋𝚎𝚛 𝚞𝚗 𝚙𝚘𝚌𝚘 𝚖𝚊𝚜 𝚍𝚎 𝚖𝚒 !!<p>
 
 <p align="center">
-    <img width="80" src="https://media.tenor.com/ch3B9VPdvhgAAAAM/fnafhs-owynn.gif" alt="">
+    <img width="75" src="https://media.tenor.com/ch3B9VPdvhgAAAAM/fnafhs-owynn.gif" alt="">
