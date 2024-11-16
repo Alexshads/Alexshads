@@ -9,4 +9,7 @@
 : 𝐂𝚕𝚒𝚌𝚔𝚎𝚊 𝚖𝚒 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚙𝚊𝚛𝚊 𝚜𝚊𝚋𝚎𝚛 𝚞𝚗 𝚙𝚘𝚌𝚘 𝚖𝚊𝚜 𝚍𝚎 𝚖𝚒 !!<p>
 
 <p align="center">
+: 𝐏𝚘𝚛𝚏𝚊𝚟𝚘𝚛 𝚗𝚘 𝚌𝚘𝚙𝚒𝚎𝚜 𝚖𝚒 𝚜𝚔𝚒𝚗𝚜, 𝚢𝚊 𝚕𝚘 𝚑𝚒𝚌𝚒𝚎𝚛𝚘𝚗 𝚖𝚞𝚌𝚑𝚊𝚜 𝚟𝚎𝚌𝚎𝚜..<p>
+
+<p align="center">
     <img width="75" src="https://media.tenor.com/ch3B9VPdvhgAAAAM/fnafhs-owynn.gif" alt="">
