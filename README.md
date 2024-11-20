@@ -1,15 +1,6 @@
 <p align="center">
-    <img width="410" src="https://pa1.aminoapps.com/6783/02e1d0547d4104d758573fbcc838f9b4f362d6e2_00.gif" alt="">
-</p>
+    <img width="500" src="https://64.media.tumblr.com/3bc68e51e656ed30806807d16d5de83b/20eafbd423ee4b93-78/s1280x1920/64bec4ee087496951b091a34349dee0016f22d61.jpg" alt="">
+
 
 <p align="center">
-: 𝐇𝚘𝚕𝚒𝚒𝚒! 𝙷𝚊𝚋𝚕𝚊𝚖𝚎 𝚜𝚒 𝚚𝚞𝚒𝚎𝚛𝚎𝚜, 𝚊𝚍𝚘𝚛𝚘 𝚑𝚊𝚌𝚎𝚛 𝚊𝚖𝚒𝚐𝚘𝚜 :𝟹𝟹<p>
-
-<p align="center">
-: 𝐂𝚕𝚒𝚌𝚔𝚎𝚊 𝚖𝚒 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚙𝚊𝚛𝚊 𝚜𝚊𝚋𝚎𝚛 𝚞𝚗 𝚙𝚘𝚌𝚘 𝚖𝚊𝚜 𝚍𝚎 𝚖𝚒 !!<p>
-
-<p align="center">
-: 𝐏𝚘𝚛𝚏𝚊𝚟𝚘𝚛 𝚗𝚘 𝚌𝚘𝚙𝚒𝚎𝚜 𝚖𝚒 𝚜𝚔𝚒𝚗𝚜, 𝚢𝚊 𝚕𝚘 𝚑𝚒𝚌𝚒𝚎𝚛𝚘𝚗 𝚖𝚞𝚌𝚑𝚊𝚜 𝚟𝚎𝚌𝚎𝚜..<p>
-
-<p align="center">
-    <img width="75" src="https://media.tenor.com/ch3B9VPdvhgAAAAM/fnafhs-owynn.gif" alt="">
+    <img width="" src="https://64.media.tumblr.com/242e38b9979b573836d1532c00512340/20eafbd423ee4b93-b3/s1280x1920/6dbfbe0a8e580208589890bbeaa886d62d17a6c1.pnj" alt="">
